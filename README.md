@@ -4,7 +4,7 @@
 - 👀 I’m interested in all realms of coding!
 - 🌱 I’m currently learning Java, C, C++, MatLab, Java, and Python, etc.
 - 💞️ I’m looking to collaborate on any programming assignments in my class... loool
-- 📫 How to reach me https://www.linkedin.com/in/genesis-anne-villar-5a86131a1
+- 📫 How to reach me https://www.linkedin.com/in/gannevillar
 
 - Please feel free to contact me, or if you want to get to know me better :)
 
